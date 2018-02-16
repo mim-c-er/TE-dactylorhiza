@@ -1,1 +1,1 @@
-# TEdactylorhiza
+# TE-dactylorhiza
